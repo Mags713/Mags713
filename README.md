@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mags713
 - 👀 I’m interested in ecological evolution
-- 🌱 I’m currently learning coding and studying capsella in urban environments
+- 🌱 I’m currently learning coding and studying capsella in urban environments, as well as investigating N. American Boechera
 - 📫 How to reach me you can email me at will2778@msu.edu
 
 <!---
